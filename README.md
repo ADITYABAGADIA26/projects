@@ -1,2 +1,2 @@
 # projects
-mini-major every project by me
+mini to major every project by me
